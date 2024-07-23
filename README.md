@@ -1,2 +1,0 @@
-# greentulipinvestment.io
-Site greentulipinvestment
